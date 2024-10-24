@@ -8,3 +8,6 @@ carey1345@icloud.com
 ansleymullins@icloud.com
 freeman13454@icloud.com
 ventura1314@icloud.com
+reagandean3@icloud.com
+rozamcculloch@icloud.com
+bryleenavarro@icloud.com
